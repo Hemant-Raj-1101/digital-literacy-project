@@ -42,9 +42,9 @@ Here, I researched and wrote a case study on Phishing, one of the most common cy
 
 Profile links:
 
-For GitHub: [https://github.com/lav25bai11015-cmyk]
+For GitHub: [https://github.com/Hemant-Raj-1101] 
 
-For LinkedIn: [https://www.linkedin.com/in/lav-singh-gautam-4853993b9/]
+For LinkedIn: [www.linkedin.com/in/hemant-raj-b54438380] 
 
 
 
