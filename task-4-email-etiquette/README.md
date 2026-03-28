@@ -118,19 +118,6 @@ VIT Bhopal University
    - Be cautious of fake profiles and scammers
    - Don't click on suspicious links sent by unknown contacts
 
----
-
-## Bonus: Before You Post, Ask Yourself
-
-| Question | If NO, Don't Post |
-|----------|------------------|
-| Would I be comfortable if my parents saw this? | 
-| Would I be comfortable if my professor saw this? | 
-| Would I be comfortable if a future employer saw this? | 
-| Does this add value or positivity? | 
-| Is this factually correct? |
-
----
 
 ## Remember
 
